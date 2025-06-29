@@ -1,6 +1,6 @@
 👑I’m @TechGoddess
 
-👑I’m interested in frontend + backend Web Development 
+👑I’m interested in Fullstack Web Development and Cybersecurity
 
 <!---
 Tech-Goddess-Olori/Tech-Goddess-Olori is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
