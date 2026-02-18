@@ -1,7 +1,4 @@
 👑I’m @TechGoddess
-
-👑Project Manager and Disciple of Rajj Khalifa
-
 👑I’m interested in Fullstack Web Development and Cybersecurity
 
 <!---
