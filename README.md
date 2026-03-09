@@ -2,7 +2,7 @@
 
 👑Light Automation Mummy💡⚙️
 
-👑I’m interested in Fullstack Web Development and Cybersecurity
+👑I’m interested in Fullstack Web Development, Cybersecurity, Industrial Automation and Aviation systems
 
 👑Feel free to Google me
 
