@@ -1,5 +1,7 @@
 👑I’m @TechGoddess
 
+👑Light Automation Mummy💡⚙️
+
 👑I’m interested in Fullstack Web Development and Cybersecurity
 
 👑Feel free to Google me
