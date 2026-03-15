@@ -2,6 +2,8 @@
 
 👑Light Automation Mummy💡⚙️
 
+👑Special Assistant to the CEO of Light Automation
+
 👑I’m interested in Fullstack Web Development, Cybersecurity, Industrial Automation and Aviation systems
 
 👑Feel free to Google me
